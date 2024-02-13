@@ -2,7 +2,7 @@
 
 ###### About me
 
-Here are some ideas to get you started:
+I enjoy mountain biking motorcross and 3d modeling, I have been student at Western springs college for 2 years and thats about all there is to know about me
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
